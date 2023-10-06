@@ -21,6 +21,9 @@ Elaboración
 10 m
 Cocción
 10 m
+
+Nose q hacer asi q cambio esta linia de codigo
+
 Comenzaremos cascando los huevos y separando la yema de las claras. Estas no las tiréis, podéis aprovecharlas para otras preparaciones.
 
 En una olla ponemos la leche a calentar con la corteza de limón, de naranja y la rama de canela. Por otra parte en un bol mezclamos removiendo bien, el azúcar y la Maicena, añadimos las yemas batidas y unimos todo con unas varillas.
