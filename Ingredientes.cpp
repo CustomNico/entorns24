@@ -21,8 +21,9 @@ Elaboración
 10 m
 Cocción
 10 m
+asdasds
 Comenzaremos cascando los huevos y separando la yema de las claras. Estas no las tiréis, podéis aprovecharlas para otras preparaciones.
-
+sdfsdfd
 En una olla ponemos la leche a calentar con la corteza de limón, de naranja y la rama de canela. Por otra parte en un bol mezclamos removiendo bien, el azúcar y la Maicena, añadimos las yemas batidas y unimos todo con unas varillas.
 
 Cuando la leche rompa a hervir vertemos la mezcla de yemas, azúcar y maicena que la pasaremos por un chino o colador grueso. Removemos a fuego medio y sin parar de remover con una varilla para que no se nos pegue hasta que la mezcla vuelva a hervir de nuevo. Volcamos en unas cazuelitas individuales.
